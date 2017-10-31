@@ -1,1 +1,1 @@
-# cooler
+# always cool
